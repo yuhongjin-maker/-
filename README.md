@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @yuhongjin-maker
 - 👀 I’m interested in playing piano, watching TV
 - 🌱 I’m currently learning Statistic 
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me hongjinyuminnie@gmail.com
 
 <!---
