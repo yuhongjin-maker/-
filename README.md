@@ -1,7 +1,6 @@
 
-# Hi there, I'm Minnie 👋 
+# Hi there, I'm Minnie 👋 耳机重度依赖患者&&JJ死忠粉
 
-## I'm 耳机重度依赖患者&&JJ死忠粉
 
 - 🔭 Check out my VS Code course: [Become A VS Code SuperHero!][course]!
 - 🌱 I’m currently learning everything 🤣
