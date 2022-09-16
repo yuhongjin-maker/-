@@ -8,5 +8,5 @@
 - ⚡ Fun fact: I love to play piano
 
 ### Connect with me:
-
+  #### hongjinyuminnie@gmail.com
 
