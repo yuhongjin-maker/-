@@ -9,6 +9,6 @@
 
 ### Connect with me:
   #### :email: Gmail: hongjinyuminnie@gmail.com
-  #### :briefcase: Linkedin: linkedin.com/in/hongjin-yu-08a67817b
+  #### :briefcase: Linkedin: https://www.linkedin.com/in/hongjin-yu-08a67817b/
 
 
