@@ -1,5 +1,5 @@
 
-# Hi there, I'm Minnie 👋 耳机重度依赖患者&&JJ死忠粉
+# Hi there, I'm Minnie 👋 耳机重度依赖患者
 
 
 - 🌱 I’m currently learning everything 🤣
