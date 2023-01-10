@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2022 Goals: Find a job in my dream company
+- 🥅 2023 Goals: Find a job in my dream company
 - ⚡ Fun fact: I love to play the piano
 
 ### Connect with me:
