@@ -10,6 +10,6 @@
 ### Connect with me:
   #### :email: Gmail: hongjinyuminnie@gmail.com
   #### :briefcase: Linkedin: https://www.linkedin.com/in/hongjin-yu-08a67817b/
-  #### :MyBlog: https://yuhongjin-maker.github.io/
+  #### :woman: MyBlog: https://yuhongjin-maker.github.io/
 
 
