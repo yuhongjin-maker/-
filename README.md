@@ -1,5 +1,5 @@
 
-# Hi there, I'm Minnie 👋 耳机重度依赖患者
+# Hi there, I'm Minnie 👋 
 
 
 - 🌱 I’m currently learning everything 🤣
