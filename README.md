@@ -3,7 +3,7 @@
 
 
 - 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
+- 👯 leetcode! leetcode! leetcode!
 - 🥅 2023 Goals: Find a job in my dream company
 - ⚡ Fun fact: I love to play the piano
 
