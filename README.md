@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 leetcode! leetcode! leetcode!
 - 🥅 2023 Goals: Find a job in my dream company
-- ⚡ Fun fact: I love to play the piano
+- ⚡ Fun fact: I love to play the piano and watch soap opera
 
 ### Connect with me:
   ####  Gmail: hongjinyuminnie@gmail.com
