@@ -8,9 +8,9 @@
 - ⚡ Fun fact: I love to play the piano
 
 ### Connect with me:
-  #### :email: Gmail: hongjinyuminnie@gmail.com
-  #### :briefcase: Linkedin: https://www.linkedin.com/in/hongjin-yu-08a67817b/
-  #### :woman: MyBlog: https://yuhongjin-maker.github.io/
+  ####  Gmail: hongjinyuminnie@gmail.com
+  ####  Linkedin: https://www.linkedin.com/in/hongjin-yu-08a67817b/
+  ####  MyBlog: https://yuhongjin-maker.github.io/
 
 
 ### My Skills
